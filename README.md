@@ -1,3 +1,3 @@
-# cduzgec.github.io
+# [cduzgec.github.io](duzgec.github.io)
 
 under construction
